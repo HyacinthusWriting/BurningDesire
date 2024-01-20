@@ -30,7 +30,6 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;我低着头，闪到一旁去整理教具。<br> 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;我与她说话的机会并不多。她每周都会来，什么时候来，每次待多久，都不确定。她很喜欢穿红色的碎花裙子，小碎步跑起来的时候裙摆飞扬起来，我看着，像透过凤凰花丛看灰白的天。<br> 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;她知道我吹单簧管，便热情地介绍我去S大的交响乐团交朋友：“乐团只招特长生，但是你可以多认识一些喜欢音乐的人。不过你单簧管真的吹得很好，不妨也去试试，说不定他们招呢？”<br> 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;姐姐本科的时候是乐团的第一小提琴。<br> 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;有一回我给孩子们吹管子，她在窗外听了很久。下课后她笑道：“是勃拉姆斯的第二号单簧管奏鸣曲？你也喜欢勃拉姆斯？”<br> 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;我点点头，踟蹰道：“你也喜欢吗？”<br> 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;“嗯，非常喜欢。我喜欢他的第一钢琴三重奏，还喜欢他的弦乐六重奏，哦对他的交响里我最喜欢第四号……这首奏鸣曲我就很喜欢。你知道吗？这首曲子有个中提琴版本，我有个朋友拉过。”<br> 
